@@ -3,11 +3,11 @@
 ![png](https://i.imgur.com/ZU976PN.png)
    ### It's me, Plum!
   
-- I prefer to be called Plum, not Sosu
-- I'm 18 years old
-- I go by they/them + a bunch of neos, but my mains are bun/buns and rat/rats
-- I'm nonbinary and a xenic gendercollector
-- I'm bisexual and taken by my partner of 5 years
+- 💫 I prefer to be called **Plum**, not Sosu
+- 🌾 I'm **18** years old
+- 🍯 I go by **they/them** + a bunch of neos, but my mains are **bun/buns** and **rat/rats**
+- 🌿 I'm **nonbinary** and a xenic gendercollector
+- 🍞 I'm **bisexual** and taken by my partner of 5 years
 
 
 **My Discord is P-Plum#7200**
