@@ -23,7 +23,7 @@
      - Made in Abyss, Wonder Egg Priority, The Promised Neverland, Beastars, Gregory Horror Show, Madoka Magica, A Silent Voice, Tokyo Mew Mew
 
  - 🌙 Other
-     - 8eyes, Character collecting, Species, Sparklecare Hospital, Cats (1998), Lost Media, VTubers (Snuffy, Nyanners, Hakos Baelz, Usada Pekora, Ninomae Ina'nis, Inugami Korone), Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation, Kidcore, Cottagecore, Medical and Webcore aesthetics
+     - 8eyes, Character collecting, Species, Sparklecare Hospital, Cats (1998), The Walten Files, Lost Media, VTubers (Snuffy, Nyanners, Hakos Baelz, Usada Pekora, Ninomae Ina'nis, Inugami Korone), Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation, Kidcore, Cottagecore, Medical and Webcore aesthetics
 
    ### Characters
  - 🥜 Kins
