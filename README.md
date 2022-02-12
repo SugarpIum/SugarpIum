@@ -23,7 +23,7 @@
      - Made in Abyss, Wonder Egg Priority, The Promised Neverland, Beastars, Gregory Horror Show, Madoka Magica, A Silent Voice
 
  - 🌙 Other
-     - 8eyes, Character collecting, Sparklecare Hospital, Cats (1998), Lost Media, Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation
+     - 8eyes, Character collecting, Sparklecare Hospital, Cats (1998), Lost Media, Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation, Kidcore, Cottagecore, Medical and Webcore aesthetics
 
    ### Kins
  - aa
