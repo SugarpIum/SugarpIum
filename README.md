@@ -1,7 +1,8 @@
 # 🌈 Plum's Cubbyhouse ︵︵︵
 
 ![png](https://i.imgur.com/ZU976PN.png)
-   ### Hi! I'm Plum!
+   ### It's me, Plum!
+   
 - I'm 18 years old
 - I go by they/them + a bunch of neos, but my mains are bun/buns and rat/rats
 - I'm a nonbinary xenic gendercollector
