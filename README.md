@@ -1,9 +1,11 @@
-# 🌈 Plum's Cubbyhouse︵︵︵
+# 🌈 Plum's Cubbyhouse ︵︵︵
 
 ![png](https://i.imgur.com/ZU976PN.png)
-- I'm Vin and I'm 19 if you know someone else with that name I don't fucking know what to name myself anymore everyone already took everything
-- I like some people from Genshin. I don't need a lecture about how Genshin's bad I already hear it 24/7
-- DNI if you're going to shun me for my interests
+   ### Hi! I'm Plum!
+- I'm 18 years old
+- I go by they/them + a bunch of neos, but my mains are bun/buns and rat/rats
+- I'm a nonbinary xenic gendercollector
+- I'm bisexual and have been with my partner for 5 years
 
 ## 🔔 Ding Ding!
    ### What's some basic info about you?
