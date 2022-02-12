@@ -31,7 +31,7 @@
     - Puppyduck (Mopatop's Shop)
 
  - Kins
-    - aa
+    - -
 
  - Comfort Characters
     - Nanachi (Made In Abyss)
