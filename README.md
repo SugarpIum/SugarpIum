@@ -51,4 +51,4 @@
 - 12 years old or under
 
 
-![gif](https://user-images.githubusercontent.com/52664572/135260406-7f426160-3751-4031-8c7a-75de92c8fcc7.gif)
+![png](https://i.imgur.com/JKfiDBc.png)
