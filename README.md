@@ -38,6 +38,7 @@
     - Faputa (Made In Abyss)
     - Infectiongirl (8eyes)
     - Angel/Devil Dog (Gregory Horror Show)
+    - Isabelle (Animal Crossing)
     - Circus Baby (FNAF: Sister Location)
     - Moon Rabbit Cookie (Cookie Run)
     - Unikitty (The Lego Movie)
