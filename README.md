@@ -18,6 +18,9 @@
    ### Interests
  - aa
 
+   ### Kins
+ - aa
+
 ## 🍀 BYI
  - I don't really have a current fandom interest. It's kind of all over the place and I'm trying to find something new. If you have suggestions, feel free.
 
