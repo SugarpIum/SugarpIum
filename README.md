@@ -15,16 +15,10 @@
 - Do not add me if you are just lonely or a troll
 
 ## 🔔 Ding Ding!
-   ### What's some basic info about you?
- - I have a multitude of names I'm okay with. **_Vince_** or **any of my current aliases** are fine, but I understand if you can't call me anything since most of my names end up being taken by other people anyway.
- - It would be nice if you remember to call me anything other than they/them. He or She is good.
-     - I don't use neos but I'm okay with it as long as the neos aren't based off of they/them pronouns.
- - I'm very childish in nature. Please excuse my immaturity, I'm trying to work on it.
- - I have an auditory processing disorder, so in the case of places that have voice chats, you may have to repeat yourself a few times if I ask.
+   ### Interests
+ - aa
 
-I'm really not the best at creating bios since I'm not great at remembering my ever so changing self. T_T
-
-### What do you enjoy?
+## 🍀 BYI
  - I don't really have a current fandom interest. It's kind of all over the place and I'm trying to find something new. If you have suggestions, feel free.
 
 - I like Nintendo games, `especially the MOTHER/Earthbound series`. I also like Transformice, Puyo Puyo, OMORI, Gantz, Genshin Impact, and a few unlisted series that I won't disclose since it's problematic to some.
@@ -45,4 +39,13 @@ I'm really not the best at creating bios since I'm not great at remembering my e
      - Jokes are fine but it's weird to talk about that kind of stuff especially if you're a minor.
 ### Anything else you want to say?
 - You guys should really try github for your bios, it's pretty swag.
+
+## 🩹 DNI
+- General DNI criteria
+- If you're against neopronouns or xenogenders. I don't care
+- Proshippers. You're weird
+- You watch/enjoy IRL/real gore
+- 12 years old or under
+
+
 ![gif](https://user-images.githubusercontent.com/52664572/135260406-7f426160-3751-4031-8c7a-75de92c8fcc7.gif)
