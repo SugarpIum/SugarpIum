@@ -1,4 +1,4 @@
-# 10PM's Corner (0.2.0)
+# 🌈 Plum's Cubbyhouse
 
 `Last updated: 02/12/22`
 ## TL;DR for those who don't want to read everything
