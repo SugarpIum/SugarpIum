@@ -57,9 +57,9 @@
 - 12 years old or under
 
 ## 🌻 Links
-[Character Collection](https://toyhou.se/P-Plum/characters/folder:all)
-[Pronouns Page](https://en.pronouns.page/@P-Plum)
-[Xenogender hoard](https://docs.google.com/document/d/16tPEIg1nWaSIOzlnSGk6_vTktbzZ0JCAx89RQjHDo1k/edit?usp=sharing)
+ - [Character Collection](https://toyhou.se/P-Plum/characters/folder:all)
+ - [Pronouns Page](https://en.pronouns.page/@P-Plum)
+ - [Xenogender hoard](https://docs.google.com/document/d/16tPEIg1nWaSIOzlnSGk6_vTktbzZ0JCAx89RQjHDo1k/edit?usp=sharing)
 ------
 
 Thanks for reading. Have a waffle 🧇
