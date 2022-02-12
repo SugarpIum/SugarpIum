@@ -1,13 +1,11 @@
-# 🌈 Plum's Cubbyhouse
+# 🌈 Plum's Cubbyhouse︵︵︵
 
-`Last updated: 02/12/22`
-## TL;DR for those who don't want to read everything
-![png](https://cdn.discordapp.com/attachments/850759495541194752/927333111744843807/A122AEE3-4198-4EF9-B3F4-5AA220AC7652.png)
+![png](https://i.imgur.com/ZU976PN.png)
 - I'm Vin and I'm 19 if you know someone else with that name I don't fucking know what to name myself anymore everyone already took everything
 - I like some people from Genshin. I don't need a lecture about how Genshin's bad I already hear it 24/7
 - DNI if you're going to shun me for my interests
 
-## FAQ
+## 🔔 Ding Ding!
    ### What's some basic info about you?
  - I have a multitude of names I'm okay with. **_Vince_** or **any of my current aliases** are fine, but I understand if you can't call me anything since most of my names end up being taken by other people anyway.
  - It would be nice if you remember to call me anything other than they/them. He or She is good.
