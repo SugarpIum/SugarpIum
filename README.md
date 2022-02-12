@@ -17,13 +17,13 @@
 ## 🔔 Ding Ding!
    ### Interests
  - 🌼 Games
-     - FNAF, Pokémon, Minecraft, Slime Rancher, Pikmin, VRChat, BOTW
+     - FNAF, Pokémon, Minecraft, Slime Rancher, Pikmin, VRChat, BOTW, CR: Ovenbreak, Stardew Valley, Planet Zoo
 
  - 🍏 Anime
-     - Made in Abyss, Wonder Egg Priority, The Promised Neverland, Beastars, Gregory Horror Show
+     - Made in Abyss, Wonder Egg Priority, The Promised Neverland, Beastars, Gregory Horror Show, Madoka Magica, A Silent Voice
 
  - 🌙 Other
-     - 8eyes, Character collecting, Cats (1998), Lost Media, Electronic pets, Zoology and Conservation
+     - 8eyes, Character collecting, Sparklecare Hospital, Cats (1998), Lost Media, Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation
 
    ### Kins
  - aa
