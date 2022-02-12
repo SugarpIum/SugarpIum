@@ -5,8 +5,8 @@
    
 - I'm 18 years old
 - I go by they/them + a bunch of neos, but my mains are bun/buns and rat/rats
-- I'm a nonbinary xenic gendercollector
-- I'm bisexual and have been with my partner for 5 years
+- I'm mostly known as Sosu and I sit by the sign at docks
+- I mainly play Ponytown to chat with my friends and join species
 
 ## 🔔 Ding Ding!
    ### What's some basic info about you?
