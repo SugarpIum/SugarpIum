@@ -26,11 +26,11 @@
      - 8eyes, Character collecting, Species, Sparklecare Hospital, Cats (1998), Lost Media, VTubers (Snuffy, Nyanners, Hakos Baelz, Usada Pekora, Ninomae Ina'nis, Inugami Korone), Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation, Kidcore, Cottagecore, Medical and Webcore aesthetics
 
    ### Characters
- - Kins
+ - 🥜 Kins
     - Usahana (Sanrio)
     - Puppyduck (Mopatop's Shop)
 
- - Comfort
+ - 🍃 Comfort
     - Nanachi (Made In Abyss)
     - Faputa (Made In Abyss)
     - Infectiongirl (8eyes)
@@ -56,5 +56,8 @@
 - You watch/enjoy real, IRL gore
 - 12 years old or under
 
+------
+
+Thanks for reading. Have a waffle 🧇
 
 ![png](https://i.imgur.com/JKfiDBc.png)
