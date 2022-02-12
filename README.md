@@ -23,7 +23,7 @@
      - Made in Abyss, Wonder Egg Priority, The Promised Neverland, Beastars, Gregory Horror Show, Madoka Magica, A Silent Voice
 
  - 🌙 Other
-     - 8eyes, Character collecting, Sparklecare Hospital, Cats (1998), Lost Media, Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation, Kidcore, Cottagecore, Medical and Webcore aesthetics
+     - 8eyes, Character collecting, Sparklecare Hospital, Cats (1998), Lost Media, VTubers (Snuffy, Nyanners, Hakos Baelz, Usada Pekora, Ninomae Ina'nis, Inugami Korone), Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation, Kidcore, Cottagecore, Medical and Webcore aesthetics
 
    ### Kins
  - Selfhoods
@@ -34,6 +34,8 @@
     - aa
 
  - Comfort Characters
+    - Nanachi (Made In Abyss)
+    - Faputa (Made In Abyss)
     - Infectiongirl (8eyes)
     - Angel/Devil Dog (Gregory Horror Show)
     - Circus Baby (FNAF: Sister Location)
