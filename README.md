@@ -8,7 +8,7 @@
 - I'm mostly known as Sosu and I sit by the sign at docks
 - I mainly play Ponytown to chat with my friends and join species
 
-My Discord is P-Plum#7200
+**My Discord is P-Plum#7200**
 - Do not add me if you are just lonely or a troll
 
 ## 🔔 Ding Ding!
