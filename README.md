@@ -9,7 +9,7 @@
 - I mainly play Ponytown to chat with my friends and join species
 
 My Discord is P-Plum#7200
-Do not add me if you are just lonely or a troll
+- Do not add me if you are just lonely or a troll
 
 ## 🔔 Ding Ding!
    ### What's some basic info about you?
