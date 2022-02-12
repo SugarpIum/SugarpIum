@@ -7,7 +7,8 @@
 - 🌾 I'm **18** years old
 - 🍯 I go by **they/them** + a bunch of neos, but my mains are **bun/buns** and **rat/rats**
 - 🌿 I'm **nonbinary** and a xenic gendercollector
-- 🍞 I'm **bisexual** and taken by my partner of 5 years
+- 🍰 I'm **bisexual** and taken by my partner of 5 years
+- 🥛 I'm **neurodivergent**
 
 
 **My Discord is P-Plum#7200**
