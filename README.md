@@ -16,7 +16,14 @@
 
 ## 🔔 Ding Ding!
    ### Interests
- - aa
+ - 🌼 Games
+     - FNAF, Pokémon, Minecraft, Slime Rancher, Pikmin, VRChat, BOTW
+
+ - 🍏 Anime
+     - Made in Abyss, Wonder Egg Priority, The Promised Neverland, Beastars, Gregory Horror Show
+
+ - 🌙 Other
+     - 8eyes, Character collecting, Cats (1998), Lost Media, Electronic pets, Zoology and Conservation
 
    ### Kins
  - aa
