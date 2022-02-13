@@ -45,6 +45,7 @@
  - I sit at the sign. I do not like people who take the spot or cover me so please don't, if I nicely ask you to move and you don't I will hide you
  - I am pretty childish and make a LOT of toilet humour jokes
  - I swear a lot and often make sexual jokes
+ - I do not let anyone other than my friends use my supporter perks. If you ask I will ignore you
  - I use 'guys', 'dude', 'bro' and 'girl' in a gender neutral way
  - I cannot understand extreme typing quirks, please provide a translation or I will not interact with you
  - I am spiritually fictionkin and have been for 4 years, if you insult my kins I will take it personally
