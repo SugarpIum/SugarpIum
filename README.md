@@ -42,6 +42,7 @@
 
 ## 🍀 BYI
  - I am AFK 99% of the time and usually only talk to people I am already friends with or people that are in the species I am in
+ - I sit at the sign. I do not like people who take the spot or cover me so please don't, if I nicely ask you to move and you don't I will hide you
  - I am pretty childish and make a LOT of toilet humour jokes
  - I cannot understand extreme typing quirks, please provide a translation or I will not interact with you
  - I am spiritually fictionkin and have been for 4 years, if you insult my kins I will take it personally
@@ -49,7 +50,7 @@
  - I use the hide button liberally, if you piss me off I will hide you, it's just how I roll
 
 ## 🩹 DNI
-- General DNI criteria
+- [General DNI criteria](https://basic-dfi-criteria.carrd.co/)
 - Stoners
 - If you're against neopronouns or xenogenders
 - Proshippers
