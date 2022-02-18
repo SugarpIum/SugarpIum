@@ -10,7 +10,7 @@
 - 🍰 I'm **bisexual** and taken by my partner of 5 years
 - 🥛 I'm **neurodivergent**
 
-I love my friends Agra, Whomp, Kaz, Kenny, Kuki, Rau, and Koby <3
+I love my friends Agra, Whomp, Kaz, Kenny, Kuki, Rau, Koby, and Lav <3
 
 
 **My Discord is P-Plum#7200**
