@@ -10,6 +10,8 @@
 - 🍰 I'm **bisexual** and taken by my partner of 5 years
 - 🥛 I'm **neurodivergent**
 
+I love my friends Agra, Whomp, Kaz, Kenny, Kuki, Rau, and Koby <3
+
 
 **My Discord is P-Plum#7200**
 - Do not add me if you are just lonely or a troll
@@ -39,8 +41,6 @@
     - Circus Baby (FNAF: Sister Location)
     - Moon Rabbit Cookie (Cookie Run)
     - Unikitty (The Lego Movie)
-
-I love my friends Agra, Whomp, Kaz, Kenny, Kuki, Rau, and Koby <3
 
 ## 🍀 BYI
  - I am AFK 99% of the time and usually only talk to people I am already friends with or people that are in the species I am in
