@@ -40,6 +40,8 @@
     - Moon Rabbit Cookie (Cookie Run)
     - Unikitty (The Lego Movie)
 
+I love my friends Agra, Whomp, Kaz, Kenny, Kuki, Rau, and Koby <3
+
 ## 🍀 BYI
  - I am AFK 99% of the time and usually only talk to people I am already friends with or people that are in the species I am in
  - I sit at the sign. I do not like people who take the spot or cover me so please don't, if I nicely ask you to move and you don't I will hide you
