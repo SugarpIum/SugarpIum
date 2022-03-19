@@ -10,8 +10,6 @@
 - 🍰 I'm **bisexual** and taken by my partner of 5 years
 - 🥛 I'm **neurodivergent**
 
-I love my friends Agra, Whomp, Kaz, Kenny, Kuki, Rau, Koby, and Lav <3
-
 
 **My Discord is P-Plum#7200**
 - Do not add me if you are just lonely or a troll
@@ -25,7 +23,7 @@ I love my friends Agra, Whomp, Kaz, Kenny, Kuki, Rau, Koby, and Lav <3
      - Made in Abyss, Wonder Egg Priority, The Promised Neverland, Beastars, Gregory Horror Show, Madoka Magica, A Silent Voice, Tokyo Mew Mew
 
  - 🌙 Other
-     - 8eyes, Character collecting, Species, Sparklecare Hospital, Cats (1998), The Walten Files, Lost Media, VTubers (Snuffy, Nyanners, Hakos Baelz, Usada Pekora, Ninomae Ina'nis, Inugami Korone), Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation, Kidcore, Cottagecore, Medical and Webcore aesthetics
+     - 8eyes, Character collecting, Species, Queer Culture, Gender Coining, Sparklecare Hospital, Cats (1998), The Walten Files, Lost Media, VTubers (Snuffy, Nyanners, Hakos Baelz, Usada Pekora, Ninomae Ina'nis, Inugami Korone), Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation, Kidcore, Cottagecore, Medical and Webcore aesthetics
 
    ### Characters
  - 🥜 Kins
@@ -38,6 +36,7 @@ I love my friends Agra, Whomp, Kaz, Kenny, Kuki, Rau, Koby, and Lav <3
     - **Faputa** (Made In Abyss)
     - Unikitty (The Lego Movie)
     - **Infectiongirl** (8eyes)
+    - Nurse Mood (Sparklecare Hospital)
     - Angel/Devil Dog (Gregory Horror Show)
     - **Circus Baby** (FNAF: Sister Location)
     - Moon Rabbit Cookie (Cookie Run)
@@ -66,7 +65,7 @@ I love my friends Agra, Whomp, Kaz, Kenny, Kuki, Rau, Koby, and Lav <3
 ## 🌻 Links
  - [Character Collection](https://toyhou.se/P-Plum/characters/folder:all)
  - [Pronouns Page](https://en.pronouns.page/@P-Plum)
- - [Xenogender hoard](https://docs.google.com/document/d/16tPEIg1nWaSIOzlnSGk6_vTktbzZ0JCAx89RQjHDo1k/edit?usp=sharing)
+ - [Xenogender hoard](https://bungender.crd.co/)
 ------
 
 Thanks for reading.
