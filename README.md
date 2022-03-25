@@ -11,6 +11,13 @@
 - 🥛 I'm **neurodivergent**
 
 
+**Quick BYI**
+ - I'm usually AFK, whisper me if you need to tell me something.
+ - I will ignore anyone who asks for my Supporter.
+ - Don't cover me when I sit at the sign it's rude and annoying. Just sit beside me.
+ - If you call my Sprigatito skin anything drug related I will hide you PERMANENTLY.
+
+
 **My Discord is P-Plum#7200**
 - Do not add me if you are just lonely or a troll
 
