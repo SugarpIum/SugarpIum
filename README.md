@@ -34,7 +34,6 @@
  - 🌙 Other
      - 8eyes, Character collecting, Species, Queer Culture, Gender Coining, Sparklecare Hospital, Cats (1998), The Walten Files, Lost Media, VTubers (Snuffy, Nyanners, Hakos Baelz, Usada Pekora, Ninomae Ina'nis, Inugami Korone), Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation, Kidcore, Cottagecore, Medical and Webcore aesthetics
 
-![gif](https://i.imgur.com/6mNH3v6.gif)
 
    ### Characters
  - 🥜 Kins
