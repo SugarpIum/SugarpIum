@@ -4,10 +4,10 @@
    ### It's me, Plum!
   
 - 💫 I prefer to be called **Plum**, not Sosu
-- 🌾 I'm **18** years old
-- 🍯 I go by **they/them** + a bunch of neos, but my mains are **bun/buns** and **rat/rats**
+- 🌾 I'm **19** years old
+- 🍯 I go by **they/them** + a bunch of neos, but my mains are **bun/buns**, **lamb/lambs** and **rat/rats**
 - 🌿 I'm **nonbinary** and a xenic gendercollector
-- 🍰 I'm **bisexual** and taken by my partner of 5 years
+- 🍰 I'm a **lesbian** and taken by my partner of 5 years
 - 🥛 I'm **neurodivergent**
 
 
@@ -21,6 +21,8 @@
 **My Discord is P-Plum#7200**
 - Do not add me if you are just lonely or a troll
 
+![gif](https://i.imgur.com/6mNH3v6.gif)
+
 ## 🔔 Ding Ding!
    ### Interests
  - 🌼 Games
@@ -31,6 +33,8 @@
 
  - 🌙 Other
      - 8eyes, Character collecting, Species, Queer Culture, Gender Coining, Sparklecare Hospital, Cats (1998), The Walten Files, Lost Media, VTubers (Snuffy, Nyanners, Hakos Baelz, Usada Pekora, Ninomae Ina'nis, Inugami Korone), Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation, Kidcore, Cottagecore, Medical and Webcore aesthetics
+
+![gif](https://i.imgur.com/6mNH3v6.gif)
 
    ### Characters
  - 🥜 Kins
@@ -44,10 +48,13 @@
     - Unikitty (The Lego Movie)
     - **Infectiongirl** (8eyes)
     - Nurse Mood (Sparklecare Hospital)
+    - **Matikanefukukitaru** (Uma Musume)
     - Angel/Devil Dog (Gregory Horror Show)
     - **Circus Baby** (FNAF: Sister Location)
     - Moon Rabbit Cookie (Cookie Run)
     - Unikitty (The Lego Movie)
+
+![gif](https://i.imgur.com/6mNH3v6.gif)
 
 ## 🍀 BYI
  - I am AFK 99% of the time and usually only talk to people I am already friends with or people that are in the species I am in
@@ -57,9 +64,11 @@
  - I do not let anyone other than my friends use my supporter perks. If you ask I will ignore you
  - I use 'guys', 'dude', 'bro' and 'girl' in a gender neutral way
  - I cannot understand extreme typing quirks, please provide a translation or I will not interact with you
- - I am spiritually fictionkin and have been for 4 years, if you insult my kins I will take it personally
+ - I am spiritually fictionkin and have been for 5 years, if you insult my kins I will take it personally
  - I don't care what fandoms you are in as long as you do not support problematic people or characters
  - I use the hide button liberally, if you piss me off I will hide you, it's just how I roll
+
+![gif](https://i.imgur.com/6mNH3v6.gif)
 
 ## 🩹 DNI
 - [General DNI criteria](https://basic-dfi-criteria.carrd.co/)
@@ -68,6 +77,8 @@
 - Proshippers
 - You watch/enjoy real, IRL gore
 - 12 years old or under
+
+![gif](https://i.imgur.com/6mNH3v6.gif)
 
 ## 🌻 Links
  - [Character Collection](https://toyhou.se/P-Plum/characters/folder:all)
