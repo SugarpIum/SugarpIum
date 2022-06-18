@@ -81,9 +81,10 @@
 ![gif](https://i.imgur.com/6mNH3v6.gif)
 
 ## 🌻 Links
+ - [Carrd](https://nanachi.crd.co/)
+ - [Xenogender hoard](https://bungender.crd.co/)
  - [Character Collection](https://toyhou.se/P-Plum/characters/folder:all)
  - [Pronouns Page](https://en.pronouns.page/@P-Plum)
- - [Xenogender hoard](https://bungender.crd.co/)
 ------
 
 Thanks for reading.
