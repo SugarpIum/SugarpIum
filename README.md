@@ -38,7 +38,10 @@
    ### Characters
  - 🥜 Kins
     - Usahana (Sanrio)
+    - Lovelitchi (Tamagotchi)
     - Puppyduck (Mopatop's Shop)
+
+   Doubles please DNI ... I have nothing against doubles but it just makes me uncomfortable sorry !!
 
  - 🍃 Comfort
     - **Hakos Baelz** (Hololive)
