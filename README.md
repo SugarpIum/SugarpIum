@@ -44,7 +44,11 @@
    Doubles please DNI ... I have nothing against doubles but it just makes me uncomfortable sorry !!
 
  - 🍃 Comfort
+    - **Airy** (ONE)
+    - Liam/Backpack (ONE)
+    - Four (BFB)
     - **Hakos Baelz** (Hololive)
+    - Pipkin Pippa (Phase Connect)
     - **Nanachi** (Made In Abyss)
     - **Faputa** (Made In Abyss)
     - Unikitty (The Lego Movie)
