@@ -46,7 +46,8 @@
  - 🍃 Comfort
     - **Airy** (ONE)
     - Liam/Backpack (ONE)
-    - Four (BFB)
+    - Paintbrush (II)
+    - Lightbulb (II)
     - **Hakos Baelz** (Hololive)
     - Pipkin Pippa (Phase Connect)
     - **Nanachi** (Made In Abyss)
