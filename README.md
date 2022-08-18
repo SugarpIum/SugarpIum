@@ -45,6 +45,7 @@
  - 🍃 Comfort
     - **Airy** (ONE)
     - Liam/Backpack (ONE)
+    - Sketchpad (TNM)
     - **Paintbrush** (II)
     - Lightbulb (II)
     - **Hakos Baelz** (Hololive)
