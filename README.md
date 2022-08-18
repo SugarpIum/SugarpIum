@@ -1,6 +1,6 @@
 # 🌈 Plum's Cubbyhouse ︵︵︵
 
-![png](https://i.imgur.com/ZU976PN.png)
+![png](https://i.imgur.com/R7SZUmg.png)
    ### It's me, Plum!
   
 - 💫 My name is **Plum**! (Please don't refer to me as anything else except joke names)
