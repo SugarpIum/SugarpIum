@@ -3,7 +3,7 @@
 ![png](https://i.imgur.com/ZU976PN.png)
    ### It's me, Plum!
   
-- 💫 I prefer to be called **Plum**, not Sosu
+- 💫 My name is **Plum**! (Please don't refer to me as anything else except joke names)
 - 🌾 I'm **19** years old
 - 🍯 I go by **they/them** + a bunch of neos, but my mains are **bun/buns**, **lamb/lambs** and **rat/rats**
 - 🌿 I'm **nonbinary** and a xenic gendercollector
@@ -32,7 +32,7 @@
      - Made in Abyss, Wonder Egg Priority, The Promised Neverland, Beastars, Gregory Horror Show, Madoka Magica, A Silent Voice, Tokyo Mew Mew
 
  - 🌙 Other
-     - 8eyes, Character collecting, Species, Queer Culture, Gender Coining, Sparklecare Hospital, Cats (1998), The Walten Files, Lost Media, VTubers (Snuffy, Nyanners, Hakos Baelz, Usada Pekora, Ninomae Ina'nis, Inugami Korone), Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation, Kidcore, Cottagecore, Medical and Webcore aesthetics
+     - Object Shows (BFDI, II, HFJONE, Nightly Manor, PPT2... ect), 8eyes, Character collecting, Species, Queer Culture, Gender Coining, Sparklecare Hospital, Cats (1998), The Walten Files, Lost Media, VTubers (Snuffy, Nyanners, Hakos Baelz, Usada Pekora, Ninomae Ina'nis, Inugami Korone), Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation, Kidcore, Cottagecore, Medical and Webcore aesthetics
 
 
    ### Characters
@@ -46,7 +46,7 @@
  - 🍃 Comfort
     - **Airy** (ONE)
     - Liam/Backpack (ONE)
-    - Paintbrush (II)
+    - **Paintbrush** (II)
     - Lightbulb (II)
     - **Hakos Baelz** (Hololive)
     - Pipkin Pippa (Phase Connect)
