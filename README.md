@@ -49,6 +49,7 @@
     - **Paintbrush** (II)
     - Lightbulb (II)
     - **Tuft** (ATCOE)
+    - Four (BFB)
     - **Hakos Baelz** (Hololive)
     - Pipkin Pippa (Phase Connect)
     - **Nanachi** (Made In Abyss)
