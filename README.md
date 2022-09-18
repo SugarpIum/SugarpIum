@@ -1,6 +1,6 @@
 # 🌈 Plum's Cubbyhouse ︵︵︵
 
-![png](https://i.imgur.com/M9aNDjm.png)
+![png](https://i.imgur.com/gz0LRJw.png)
    ### It's me, Plum!
   
 - 💫 My name is **Plum**! (Please don't refer to me as anything else except joke names)
@@ -101,4 +101,4 @@
 Thanks for reading.
  - [Click me](https://www.youtube.com/watch?v=jfZOvQnsBq0)
 
-![png](https://i.imgur.com/JKfiDBc.png)
+![png](https://i.imgur.com/xrBnSzM.png)
