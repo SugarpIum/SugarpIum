@@ -3,6 +3,7 @@
 ![png](https://i.imgur.com/gz0LRJw.png)
    ### It's me, Plum!
    Docks's #1 Teardrop Enjoyer
+  ---
   
 - 💫 My name is **Plum**! (Please don't refer to me as anything else except joke names)
 - 🌾 I'm **19** years old
