@@ -43,7 +43,7 @@
 
    Doubles please DNI ... I have nothing against doubles but it just makes me uncomfortable sorry !!
 
- - 🍃 Comfort
+ - 💦 Comfort (OSC)
     - BFDI - **Teardrop**, **Leafy**, Ruby, Book, Pillow, Remote, Fanny, Cake, Price Tag, Naily, Pin, Four, X
     - II - **Lightbulb**, **Paintbrush**, Test Tube
     - HFJONE - **Airy**, Liam/Backpack
@@ -51,6 +51,7 @@
     - TNM - Sketchpad, Tophat, GPS
     - ATCOE - **Tuft**, Traffic Light
 
+- 🍃 Comfort (Other)
     - **Hakos Baelz** (Hololive)
     - Pipkin Pippa (Phase Connect)
     - **Nanachi** (Made In Abyss)
