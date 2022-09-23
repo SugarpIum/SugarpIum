@@ -2,6 +2,7 @@
 
 ![png](https://i.imgur.com/gz0LRJw.png)
    ### It's me, Plum!
+   Docks's #1 Teardrop Enjoyer
   
 - 💫 My name is **Plum**! (Please don't refer to me as anything else except joke names)
 - 🌾 I'm **19** years old
@@ -43,15 +44,12 @@
    Doubles please DNI ... I have nothing against doubles but it just makes me uncomfortable sorry !!
 
  - 🍃 Comfort
-    - **Airy** (ONE)
-    - Liam/Backpack (ONE)
-    - Sketchpad (TNM)
-    - **Paintbrush** (II)
-    - Lightbulb (II)
-    - **Tuft** (ATCOE)
-    - **Teardrop** (BFDI)
-    - Leafy (BFDI)
-    - Four (BFDI)
+    - BFDI - **Teardrop**, **Leafy**, Ruby, Book, Pillow, Remote, Fanny, Cake, Price Tag, Naily, Pin, Four, X
+    - II - **Lightbulb**, **Paintbrush**, Test Tube
+    - HFJONE - **Airy**, Liam/Backpack
+    - CFMOT - Yoshka, Cheppy, Socka
+    - TNM - Sketchpad, Tophat, GPS
+    - ATCOE - **Tuft**, Traffic Light
     - **Hakos Baelz** (Hololive)
     - Pipkin Pippa (Phase Connect)
     - **Nanachi** (Made In Abyss)
@@ -67,7 +65,7 @@
 
 ![gif](https://i.imgur.com/6mNH3v6.gif)
 
-## 🍀 BYI
+## 🍀 BYI/Info
  - I am AFK 99% of the time and usually only talk to people I am already friends with or people that are in the species I am in
  - I don't have a cover/touch discomfort but I really hate when people cover me so please don't
  - I am pretty childish and make a LOT of toilet humour jokes
