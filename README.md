@@ -26,7 +26,7 @@
 ## 🔔 Ding Ding!
    ### Interests
  - 🌼 Games
-     - FNAF, Pokémon, Minecraft, Slime Rancher, Pikmin, VRChat, BOTW, CR: Ovenbreak, Stardew Valley, Planet Zoo
+     - FNAF, Pokémon, Minecraft, Scratchin Melodii, Slime Rancher, Pikmin, VRChat, BOTW, CR: Ovenbreak, Stardew Valley, Planet Zoo
 
  - 🍏 Anime
      - Made in Abyss, Wonder Egg Priority, The Promised Neverland, Beastars, Gregory Horror Show, Madoka Magica, A Silent Voice, Tokyo Mew Mew
