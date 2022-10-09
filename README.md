@@ -13,6 +13,7 @@
 
 
 **Quick BYI**
+ - I am very awkward! I'm really sorry if I don't talk to you, I have trouble interacting with those I don't know
  - I'm usually AFK, whisper me if you need to tell me something.
  - I will ignore anyone who asks for my Supporter.
  - Don't cover me please, I like seeing my skin.
