@@ -74,7 +74,7 @@
  - I swear a lot and often make sexual jokes
  - I do not let anyone other than my friends use my supporter perks. If you ask I will ignore you
  - I use 'guys', 'dude', 'bro' and 'girl' in a gender neutral way
- - I cannot understand extreme typing quirks, please provide a translation or I will not interact with you
+ - I cannot understand extreme typing quirks and I have great difficulty reading fonts, please provide a translation or I will not interact with you
  - I am spiritually fictionkin and have been for 5 years, if you insult my kins I will take it personally
  - I don't care what fandoms you are in as long as you do not support problematic people or characters (apart from like... DSMP and Okegom. Y'all can fuck off)
  - I use the hide button liberally, if you piss me off I will hide you, it's just how I roll
