@@ -33,7 +33,7 @@
      - Made in Abyss, Wonder Egg Priority, The Promised Neverland, Beastars, Gregory Horror Show, Madoka Magica, A Silent Voice, Tokyo Mew Mew
 
  - 🌙 Other
-     - Object Shows (BFDI, II, HFJONE, Nightly Manor, ATCOE, CFMOT... ect), 8eyes, Character collecting, Species, Queer Culture, Gender Coining, Sparklecare Hospital, Cats (1998), The Walten Files, Lost Media, VTubers (Snuffy, Nyanners, Hakos Baelz, Usada Pekora, Ninomae Ina'nis, Inugami Korone), Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation, Kidcore, Cottagecore, Medical and Webcore aesthetics
+     - Object Shows (BFDI, II, HFJONE, AIB, Nightly Manor, ATCOE, CFMOT... ect), 8eyes, Character collecting, Species, Queer Culture, Gender Coining, Sparklecare Hospital, Cats (1998), The Walten Files, Lost Media, VTubers (Snuffy, Nyanners, Hakos Baelz, Usada Pekora, Ninomae Ina'nis, Inugami Korone), Electronic pets, Zoology and Conservation, Jerma985, SCP Foundation, Kidcore, Cottagecore, Medical and Webcore aesthetics
 
 
    ### Characters
